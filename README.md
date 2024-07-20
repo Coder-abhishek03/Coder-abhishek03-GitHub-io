@@ -14,6 +14,6 @@
 | ---------- | ----------- | --------- |  
 | 17-07-2024 | Dr Jaswinder Singh | He astonished us using his marvellous work on experiments |
 | ---------- | ----------- | --------- |  
-| 18-07-2024 | Prof Harpal Singh Pannu | He gave lecture on religious topic ** Gurbani** |
+| 18-07-2024 | Prof Harpal Singh Pannu | He gave lecture on religious topic **Gurbani** |
 | ---------- | ----------- | --------- |  
 | 19-07-2024 | Prof Bhogal | there was a workshop hall visit and there he told us about examination criteria |
