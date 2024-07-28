@@ -10,3 +10,8 @@
 | 17-07-2024 | Dr Jaswinder Singh | He astonished us using his marvellous work on experiments |
 | 18-07-2024 | Prof Harpal Singh Pannu | He gave lecture on religious topic **Gurbani** |
 | 19-07-2024 | Prof Bhogal | there was a workshop hall visit and there he told us about examination criteria |
+| 22-07-2024 | Ms.Harjot Kaur | UHV lecture delivered |
+| 23-07-2024 | Mr.Rakesh Kumar | motivated us for upcoming journey , also there was a lecture providing information about gym training | 
+| 24-07-2024 | Peer interaction | details about cars participating in racing competition |
+| 25-07-2024 | Dr.Arvind Dhingra | Discussed his experience and life stories , although the lecture was very interseting because of his interaction with his students |
+| 26-07-2024 | Valedictory | This was the last day of our induction programme also we appeared for math test | 
